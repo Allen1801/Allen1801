@@ -29,5 +29,6 @@ I'm currently learning more and continuously enhancing my abilities in being a f
 ### Fun Facts:
 - I also love developing games
 - Final Fantasy 7 is my favourite game
+- Psyduck is my favourite pokemon
 - I love to macgyver random things into a much useful one
 - My hobbies are: books, music, games, anime
